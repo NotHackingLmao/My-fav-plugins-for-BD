@@ -3,7 +3,7 @@ I didn´t make these plugins. (BetterDiscord violates Discord's terms of service
 
 Some of them might don't work. Just try it :3
 
-You need Help? Add me on Discord: HeroEx #1337
+You need Help? Add me on Discord: HeroEx #7295
 
 If you dont have BetterDiscord here is a link https://betterdiscord.app
 
